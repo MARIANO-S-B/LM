@@ -12,3 +12,6 @@
 > Centro: _Lope De Vega_
 
 
+Vengo de un grado superior de **DAM**, no me gusto mucho y me cambia a la continuacion 
+del grado medio (_Administracion de Sistemas en Red_)
+
